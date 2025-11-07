@@ -1,4 +1,3 @@
-👇
 
 🧠 What This Page Does
 
